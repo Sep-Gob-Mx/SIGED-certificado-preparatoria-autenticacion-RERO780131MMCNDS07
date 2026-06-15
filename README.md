@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RERO780131MMCNDS07
+RERO780131MMCNDS07
